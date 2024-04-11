@@ -2,8 +2,8 @@
 - 👀 I’m interested in front-end technoliogies...
 - 🌱 I’m currently learning Fullstock with java
 - 💞️ I’m looking to collaborate with a reputed company who will give me a oppurtunity to grow my skills along with the companies objective
-- 📫 How to reach me ...
-- 😄 Pronouns: 
+- 📫 How to reach me mobile:7095302848 (or) email:srigadhabhaskar1999@gmail.com
+- 😄 Pronouns: He
 - ⚡ Fun fact: ...
 
 <!---
